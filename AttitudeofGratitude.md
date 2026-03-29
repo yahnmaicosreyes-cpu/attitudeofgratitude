@@ -44,7 +44,7 @@
 3. Thankful for pursuit's flexibility -- letting me come in late on Sundays
 
 ## Day 8 March 30th
-1. Grateful
+1. Grateful for
 2.
 3.
 

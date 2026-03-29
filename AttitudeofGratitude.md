@@ -37,3 +37,8 @@
 1. Today I am grateful for prayer and meditation
 2. Thankful that I meditated for 30 days this month
 3. Thankful for the people in my life who live rent free in my head because they teach me how to love
+
+## Day 7 March 29th
+1. Today I am grateful I was able to finish "what a good problem?" analysis
+2. Thankful for the ability to be able to serve at church
+3. Thankful for pursuit's flexibility -- letting me come in late on Sundays

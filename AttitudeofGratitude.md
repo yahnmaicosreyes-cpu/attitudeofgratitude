@@ -53,3 +53,7 @@
 2. Grateful for the glasses I bought today
 3. Grateful for health insurance
 
+## Day 10 April 1st
+1. Grateful I was able to build my app last night
+2. Grateful my glasses were ready to pick up today
+3. Grateful I am more comfortable talking to people

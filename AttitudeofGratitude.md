@@ -63,3 +63,7 @@
 2. Grateful this exercise is getting easier
 3. Grateful for Bagel and Butter Toasted
 
+## Day 12 April 3rd
+1. Grateful for prayer with a friend from Pursuit
+2. Grateful for breathe and the air we breathe
+3. Grateful for hot chocolate

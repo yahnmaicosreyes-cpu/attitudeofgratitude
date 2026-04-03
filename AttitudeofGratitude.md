@@ -57,3 +57,9 @@
 1. Grateful I was able to build my app last night
 2. Grateful my glasses were ready to pick up today
 3. Grateful I am more comfortable talking to people
+
+## Day 11 April 2nd
+1. Grateful for I finished my coursework for the week
+2. Grateful this exercise is getting easier
+3. Grateful for Bagel and Butter Toasted
+

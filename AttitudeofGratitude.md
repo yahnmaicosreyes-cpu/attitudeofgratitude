@@ -67,3 +67,10 @@
 1. Grateful for prayer with a friend from Pursuit
 2. Grateful for breathe and the air we breathe
 3. Grateful for hot chocolate
+
+## Day 13 April 4th
+1. Grateful for prayer and meditation
+2. Grateful that I have a lot to be grateful for if I really think about it 
+3. Grateful for breathe which is life giving yet free for our consumption
+4. Grateful for what our bodies do in the backend to keep us alive
+5. Grateful for the people in my life who hear me, see me, and validate my experiences.

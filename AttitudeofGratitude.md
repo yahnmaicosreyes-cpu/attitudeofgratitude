@@ -90,12 +90,12 @@
 2. Grateful I was able to Finish Saturday's assignments today
 3. Grateful my church records their services on Youtube
 
-## Day 17th, April 8th, Wednesday
+## Day 17th April 8th, Wednesday
 1. Today I am grateful for making to Pursuit HQ early 
 2. Thankful for the cinnamon raisen bagel I had a few minutes from typing this gratitude list
 3. Thankful I was able to get to MVP fairly quickly 
 
-## Day 18th, April 9th, Thursday
+## Day 18th April 9th, Thursday
 1. Today I am grateful I called to reschedule my dentist appointment for next week because I was running late 
 2. Thankful for prayer today
 3. Thankful I woke up today

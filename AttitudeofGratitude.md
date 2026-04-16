@@ -99,3 +99,33 @@
 1. Today I am grateful I called to reschedule my dentist appointment for next week because I was running late 
 2. Thankful for prayer today
 3. Thankful I woke up today
+
+## Day 19th April 10th, Friday
+1. Today I am grateful for prayer
+2. Thankful for coffee
+3. Thankful for a run with a run
+
+## Day 20th April 11th, Saturday
+1. Grateful for bus coming early
+2. Thankful for this practice 
+3. Thankful for fellowship with some friends
+
+## Day 21st April 12th, Sunday
+1. Grateful for a short, nice, simple chat with mother
+2. Thankful for Church this morning
+3. Thankful for music
+
+## Day 22nd April 13th, Monday
+1. Grateful for learning how to pray
+2. Thankful being able to serve the Churh
+3. Thankful for a friend willing to go to church
+
+## Day 23rd April 14th, Tuesday
+1. Thankful for prayer
+2. Thankful I received a call from my brother
+3. Thankful time spend in meditation
+
+## Day 24th April 15th , Wednesday
+1. Thankful for prayer and meditation
+2. Thankful for Daniel Buying dinner
+3. Thankful for Pursuit staff and students

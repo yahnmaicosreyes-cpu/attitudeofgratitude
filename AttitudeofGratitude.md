@@ -181,3 +181,6 @@
 3. Thankful for the access to electronic devices Pursuit let's us use 
 
 ## Day 35 April 26th, Sunday
+1. Thankful for another day above the ground
+2. Thankful my mother left me food to eat last night
+3. Thankful for Church today and interfacing with new people at the Church
